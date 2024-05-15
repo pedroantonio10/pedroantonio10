@@ -8,4 +8,4 @@ Meu nome é Pedro Antonio
 
 ### Você pode entrar em contato comigo 🔊
 
-pedrogamerhot@gmail.com
+pedroantonio8275@gmail.com
